@@ -1,4 +1,4 @@
-
+Experience rivals like never before with rivals rare Script, the #1 Script. Includes undetectable and auto-upgrade for unbeatable performance.
 
 
 
